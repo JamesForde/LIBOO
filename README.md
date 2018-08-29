@@ -17,7 +17,7 @@ Please contact me
 
 Email: jamesforde@qq.com
 
-![img](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/8c/99/81/8c9981b0-bfb3-972f-aa84-40166f769390/pr_source.png/0x0ss.jpg
+![img](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/8c/99/81/8c9981b0-bfb3-972f-aa84-40166f769390/pr_source.png/0x0ss.jpg)
 
 ![img](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/2c/84/5f/2c845f94-3d04-6f0f-5a4b-2c3d926b06be/pr_source.png/0x0ss.jpg)
 
